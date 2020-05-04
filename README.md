@@ -1,0 +1,1 @@
+# devices_realme_rmx1971-2
